@@ -1,0 +1,6 @@
+**OMAR**
+*RUIZ*
+
+- AZUL
+- BIJU
+- CHEQUELETE PENDEJE
